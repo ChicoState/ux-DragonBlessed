@@ -1,1 +1,1 @@
-# ___'s UX Journal
+# Christian Hatfields's UX Journal
